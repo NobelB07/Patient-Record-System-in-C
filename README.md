@@ -11,4 +11,4 @@ Nobel Baral:
 
 Sandesh Bastola: 
 
-Sushil Neupane:
+Sunil Neupane:
