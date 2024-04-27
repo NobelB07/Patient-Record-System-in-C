@@ -11,4 +11,4 @@ Nobel Baral: https://github.com/NobelB07
 
 Sandesh Bastola: 
 
-Sunil Neupane:
+Susil Neupane:
